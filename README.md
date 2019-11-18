@@ -12,3 +12,5 @@ Global
 Spanish 
 Lunch 
 English 
+
+I want to continue onto my comp science job in the future.
