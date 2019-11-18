@@ -3,3 +3,12 @@ My email is yuexinw6057@hstat.org
 I go to HSTAT, a school in Bay Ridge
 I am an ambivert, i love dogs and informational techonology. 
 
+My schedule is: 
+BHP
+Alegbra II
+Chemistry 
+SEP
+Global 
+Spanish 
+Lunch 
+English 
