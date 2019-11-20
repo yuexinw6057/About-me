@@ -1,4 +1,5 @@
 My name is Kayla 
+
 I love dogs and CS
  My schedule: 
  BHP 
@@ -11,3 +12,5 @@ I love dogs and CS
  english 
  
  Email: yuexinw6057@hstat.org 
+ 
+ Hstat- My school 
